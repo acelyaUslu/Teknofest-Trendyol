@@ -1,1 +1,0 @@
-# Teknofest-Trendyol
